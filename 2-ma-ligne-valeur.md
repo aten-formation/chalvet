@@ -1,6 +1,6 @@
 # Mam Chalvet - ma ligne directrice en formation
 
-![Superman](https://c1.staticflickr.com/3/2383/2187915922_16ac44a9ff_z.jpg?zz=1)
+![Superman](https://framapic.org/CRtcpWWEILZx/OxVnZ6fuF7DP.jpg)
 
 ## Les valeurs que je veux récolter en priorité lorsque je mets en place/anime une formation
 
