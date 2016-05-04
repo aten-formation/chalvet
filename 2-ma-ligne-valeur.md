@@ -30,7 +30,7 @@ Confiance / Respect / Relativité
 
 ### J'aimerai développer / récolter comme compétences
 
-Prise de recul / Soutenabilité / Fun 
+Prise de recul / Soutenabilité / Fun / Respect
 
 
 
