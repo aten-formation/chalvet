@@ -15,9 +15,10 @@ Secondaires: confiance / fun / solidarité / expérimenter
 ## Mon axe de travail: valeurs sur lesquelles j'aimerai axer mon apprentissage (monter en compétences)
 
 * prise de recul 
-* soutenabilité 
-* fun 
+* soutenabilité
 * respect
+
+*Secondaire: fun*
 
 ## Des compétences sur lesquelles je peux me baser intuitivement
 
