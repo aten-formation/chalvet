@@ -14,3 +14,24 @@
 * **Soutenabilité** > ou favoriser le respect des rythmes biologiques des stagiaires
 * **Expérimenter** > ou se tester en se lançant des petits défis, en mettant en place des variations à chaque formation
 * **Reliance** > ou entrer en lien profond avec les stagiaires (positionnement, confiance, ...)
+
+## Exemple Sandrine Chalvet 
+
+![ThomasWolff](https://framapic.org/CRtcpWWEILZx/OxVnZ6fuF7DP.jpg)
+
+### Valeurs
+
+* **Mes valeurs WAOUH ++**: relativité / respect / esprit critique / prise de recul / soutenabilité
+* **Mes valeurs COOL +**: confiance / fun / solidarité / expérimenter
+
+### Forces sur lesquelles je peux me baser / en lesquelles je peux avoir confiance
+
+Confiance / Respect / Relativité 
+
+### J'aimerai développer / récolter comme compétences
+
+Prise de recul / Soutenabilité / Fun 
+
+
+
+
