@@ -1,5 +1,7 @@
 # Ma ligne directrice en formation
 
+![Superman](https://c1.staticflickr.com/3/2383/2187915922_16ac44a9ff_z.jpg?zz=1)
+
 > Brainstorming: Quelles sont les plus hautes valeurs que nous défendons par l'animation de formation? 
 
 * **Confiance** > ou favoriser la confiance dans la capacité à comprendre et à générer de nouvelles compétences (qui vont ouvrir de nouvelles opportunités)
