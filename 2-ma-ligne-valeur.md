@@ -1,6 +1,31 @@
-# Ma ligne directrice en formation
+# Mam Chalvet - ma ligne directrice en formation
 
 ![Superman](https://c1.staticflickr.com/3/2383/2187915922_16ac44a9ff_z.jpg?zz=1)
+
+## Les valeurs que je veux récolter en priorité lorsque je mets en place/anime une formation
+
+* relativité
+* respect
+* esprit critique
+* prise de recul
+* soutenabilité
+
+Secondaires: confiance / fun / solidarité / expérimenter
+
+## Mon axe de travail: valeurs sur lesquelles j'aimerai axer mon apprentissage (monter en compétences)
+
+* prise de recul 
+* soutenabilité 
+* fun 
+* respect
+
+## Des compétences sur lesquelles je peux me baser intuitivement
+
+* confiance
+* respect
+* relativité
+
+# Exploration brainstorming: rendu
 
 > Brainstorming: Quelles sont les plus hautes valeurs que nous défendons par l'animation de formation? 
 
@@ -15,22 +40,7 @@
 * **Expérimenter** > ou se tester en se lançant des petits défis, en mettant en place des variations à chaque formation
 * **Reliance** > ou entrer en lien profond avec les stagiaires (positionnement, confiance, ...)
 
-## Exemple Sandrine Chalvet 
 
-![ThomasWolff](https://framapic.org/CRtcpWWEILZx/OxVnZ6fuF7DP.jpg)
-
-### Valeurs
-
-* **Mes valeurs WAOUH ++**: relativité / respect / esprit critique / prise de recul / soutenabilité
-* **Mes valeurs COOL +**: confiance / fun / solidarité / expérimenter
-
-### Forces sur lesquelles je peux me baser / en lesquelles je peux avoir confiance
-
-Confiance / Respect / Relativité 
-
-### J'aimerai développer / récolter comme compétences
-
-Prise de recul / Soutenabilité / Fun / Respect
 
 
 
